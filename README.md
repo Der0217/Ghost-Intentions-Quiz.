@@ -3,6 +3,6 @@
 三題時，我們將會給你一個大「驚」喜喔～ 
 如果你是對恐怖遊戲免疫的人或者你是不怕被嚇的體質，亦是你很享受被嚇到的感覺，請立即下載此遊戲並盡情的遊玩吧！
 
-Ghostly Quiz Attack," also known as "Strange Quiz Attack," is a game that tests your knowledge related to "ghosts." The range of questions includes festivals, taboos, and traditional customs. It's even possible that the meaning of "ghost" you understand is completely different from what the questions refer to. In short, the questions will cover everything you can think of and things you might not expect.
+Ghost-Intentions-Quiz," also known as "Strange Quiz Attack," is a game that tests your knowledge related to "ghosts." The range of questions includes festivals, taboos, and traditional customs. It's even possible that the meaning of "ghost" you understand is completely different from what the questions refer to. In short, the questions will cover everything you can think of and things you might not expect.
 
 Additionally, this game is different from ordinary quiz games; it incorporates horror elements. When you get three questions wrong, we will give you a big surprise! If you are someone who is immune to horror games, or if you are not afraid of being scared, or if you enjoy the thrill of being frightened, please download this game and enjoy playing it!
